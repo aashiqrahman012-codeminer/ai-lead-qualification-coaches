@@ -79,7 +79,9 @@ Key Results & Impact
 
 Contact & Hire Me
 I build custom AI automation systems for coaches, agencies, and service businesses.
-Upwork: https://www.upwork.com/freelancers
-LinkedIn: https://www.linkedin.com/in/aashiqrahman47
-Email: aashiqrahman012@gmail.com.com
+
+- **Upwork: https://www.upwork.com/freelancers
+- **LinkedIn: https://www.linkedin.com/in/aashiqrahman47
+- **Email: aashiqrahman012@gmail.com.com
+
 Let's automate your client acquisition and scale your coaching business without adding headcount!

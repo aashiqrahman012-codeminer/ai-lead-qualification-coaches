@@ -264,9 +264,9 @@ I build custom AI automation systems for coaches, agencies, and service business
 
 
 
-\- \*\*Upwork: https://www.upwork.com/freelancers/\~0197d1a1c35c48a8f7?mp\_source=share]
+\- \*\*Upwork: https://www.upwork.com/freelancers
 
-\- \*\*LinkedIn: https://www.linkedin.com/in/aashiqrahman47?utm\_source=share\_via\&utm\_content=profile\&utm\_medium=member\_android
+\- \*\*LinkedIn: https://www.linkedin.com/in/aashiqrahman47
 
 \- \*\*Email: aashiqrahman012@gmail.com.com
 
